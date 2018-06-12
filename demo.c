@@ -1,7 +1,11 @@
-hi this is supposed to be a c prgm
-
-knjhbbkubmhb
-jnjb
-mbj,hb' ,,hjb
-  ij
-  
+d,m,kdxn
+d,vknkdfjv
+nvfdkjbn
+cnbf
+nv,fdn
+,mfdk
+,m,fkbj,vkdf
+,mndfkj
+mvkdflj
+mvkldfj
+nvkdfij
